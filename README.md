@@ -1,4 +1,4 @@
-**CSpaceTweaks -RainbowSoap Update v3+**
+**SpaceTweaks -RainbowSoap Update v3+**
 
 ##
 

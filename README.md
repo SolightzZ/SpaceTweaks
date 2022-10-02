@@ -1,6 +1,7 @@
 **SpaceTweaks -RainbowSoap Update v3+**
 
 ##
+![image](https://cdn.discordapp.com/attachments/876032428597194782/1025948446890393621/pack_icon.png)
 
 **Download now SpaceTweaks -RainbowSoap Update v3+**
 
